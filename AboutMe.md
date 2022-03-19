@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Asl3y4 / Asl Ares, an unknown French guy!
+- 👀 I’m fascinated by coding and i would like to share my projects with you!
+- 🌱 I’m currently Studying law and economy, but it's not a reason to not develop a new hobby!
+- 💞️ I’m looking to collaborate with everyone wishing to help me!
+- 📫 How to reach me? Add me on Discord: Λsl Ἄρης#1241 Or join my server : https://discord.gg/3t6AXETn
+- I'm currently selling 2 completely newly developped discord tools. For more information, contact me on discord.

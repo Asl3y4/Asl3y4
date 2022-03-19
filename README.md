@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @Asl3y4
-- 👀 I’m interested in Sports and fascinated by coding.
-- 🌱 I’m currently learning law, economy and management but i'm also trying to learn how to seriously code!
-- 💞️ I’m looking to collaborate with everyone wishing to help me!
-- 📫 How to reach me Λsl Ἄρης#1241
